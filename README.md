@@ -1,2 +1,2 @@
-# sanjam-m.github.io
-Website
+# Music n Dance Academy
+Home to multiple dance forms
